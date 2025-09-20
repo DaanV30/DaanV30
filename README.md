@@ -12,6 +12,6 @@
 ---
 
 ## ꚠ📱| visit my TikTok page
-tiktok.com/daan_tech1
+[tiktok.com/daan_tech1](https://www.tiktok.com/@daan_tech1)
 
 

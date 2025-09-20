@@ -11,6 +11,7 @@
 
 ---
 
-## 📈 Visitor Count
-![Visitor Count](https://profile-counter.glitch.me/DaanV30/count.svg)
+## ꚠ📱| visit my TikTok page
+tiktok.com/daan_tech1
+
 

@@ -13,5 +13,6 @@ only for educational puroses only
 
 ## ꚠ📱| visit my TikTok & YouTube page
 👉👉👉 [tiktok.com/daan_tech1](https://www.tiktok.com/@daan_tech1) 👈👈👈
+
 👉👉👉 [youtube.com/daan_tech1](https://www.youtube.com/@daan_tech1 ) 👈👈👈
 

@@ -10,5 +10,5 @@
 ---
 
 ## 📈 Visitor Count
-![Visitor Count](https://profile-counter.glitch.me/DaanV40/count.svg)
+![Visitor Count](https://profile-counter.glitch.me/DaanV30/count.svg)
 

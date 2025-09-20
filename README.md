@@ -1,5 +1,7 @@
 ## Hi there 👋
 
+💻 Ethical Hacker & Developer
+
 
 - 🔭 I’m currently working on some ethical hacker stuff (COMING SOON)
 - 🌱 I’m currently learning Java, Python, HTML and CSS
